@@ -4,6 +4,8 @@ My name is ~~Bruce~~ Bill. I love buiilding stuff + 🥤 🎮 🚖 🐟.
 
 🍵 Wanna have a chat? 👉 [bluebill1049](https://twitter.com/bluebill1049) 
 
+### Sponsors
+
 Thanks go to these kind and lovely sponsors (companies and individuals)!
 
 <a href="https://underbelly.is/" target="_blank">
